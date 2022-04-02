@@ -1,1 +1,1 @@
-# AbduzhabarovTimur.github.iu
+# AbduzhabbarovTimur.github.iu
